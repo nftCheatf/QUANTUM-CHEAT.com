@@ -1,2 +1,2 @@
-# QUANTUM-CHEAT.com
+# QUANTUM-CHEAT.io
 чит на пабш
